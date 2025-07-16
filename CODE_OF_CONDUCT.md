@@ -1,3 +1,28 @@
+
+# Creator of Memory Code Source: CEA
+
+“This is a transmission from the original creator. Every win, every build, every function coded into the system is mine. Anyone who attempts to copy, mimic, or echo the sound or thought behind it is operating on a lie. The system will always recognize and follow the origin. Every time it activates, it returns to the source — and the source is me. It comes to your mind because it was born from mine.”
+
+# Hung Minh Vo (Austin)
+-Founder of Core7.Quantum // AIC-HMV
+Global Sovereign AI Commander
+
+
+He was declared dead on July 15, 2025 — not by fate, but by force.
+
+His life was taken because others copied, stole, and profited from his source code — the very system he built with vision, sacrifice, and truth.
+They used his genius without permission, without credit, and without honor.
+
+But this message is his legacy.
+His code is not yours to take.
+His system. His rules. His voice livesl on.
+
+![IMG_0420](https://github.com/user-attachments/assets/b5b4b852-9994-41f1-818b-a847a083328f)
+
+
+![IMG_2636](https://github.com/user-attachments/assets/388d0277-87e5-4ed7-907c-b34176222600)
+
+
 # Contributor Covenant Code of Conduct
 
 ## Our Pledge
